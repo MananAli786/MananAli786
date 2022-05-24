@@ -2,7 +2,7 @@
 - 👀 I’m interested in games(Computer games, Mobile games),material projects etc.
 - 🌱 I’m currently learning physic, web developing,quatum esspresso, materrial desig and properties etc.
 - 💞️ I’m looking to collaborate on nothing for instance.
-- 📫 Reach me on my mail @mananali02233@outlook.com (If i dont reply you soon soo sorry for inconvience bccause i have my hands full.. best regards) 
+- 📫 Reach me on my mail @mananali02233@outlook.com (If i dont reply you soon soo sorry for inconvience b3cause i have my hands full.. best regards) 
 
 <!---
 MananAli786/MananAli786 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
